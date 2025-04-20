@@ -1,1 +1,1 @@
-Dotnet Developer
+Ideas are meant to shared.
